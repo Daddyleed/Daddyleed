@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Daddyleed
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach 
+- 👀 I’m interested in sports
+- 🌱 I’m currently learning about life
+- 💞️ I’m looking to collaborate on anything
+- 📫 How to reach
